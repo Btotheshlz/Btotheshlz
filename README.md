@@ -1,4 +1,4 @@
-- 👩🏽 Hi, I’m @Btotheshlz, 27 y/o
+- 👩🏽 Hi, I’m @Btotheshlz, 28 y/o
 - 👀 I’m interested in health economics
 
 <!---
